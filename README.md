@@ -1,4 +1,4 @@
-# the project 2026
+# The Project 2026
 - [https://www.youtube.com/@TheProject2026](https://www.youtube.com/@TheProject2026)
 - [https://medium.com/@TheProject2026](https://medium.com/@TheProject2026)
 - [https://x.com/theproject2026](https://x.com/theproject2026)
